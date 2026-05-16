@@ -1,4 +1,4 @@
-# 
+# osmosis trading bot updated Algorithm | token-launch-monitoring & transaction-batching is the best osmosis trading bot, featuring token-launch-monitoring and transaction-batching.
 
 
 
